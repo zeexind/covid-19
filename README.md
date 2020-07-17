@@ -12,6 +12,9 @@ Thanks..
 Greetz:
 Galaxy Xploiter Team
 CytoXploit
+PhantomSec1337
+SyndiXateCrew
+INDOIT ZONE
 Coded By ZeeX_IND
 
 Ya Maaf Masih Newbie :V
